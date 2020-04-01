@@ -1,0 +1,1 @@
+# fritaylakay.github.io
